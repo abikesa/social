@@ -7,6 +7,20 @@
 
 ---
 
-- Collectively, economic growth is the solution to everything
-- Individually, buying a service or good is the thing
-- Thus spake Yuval Noah tongue-fully-in-cheek
+### Posteriori:: Feminine/Networking
+##### (Alterations/Meaning: ♭9,♯9,♯11,♭13) 
+5. Temperament/Heretical - `Trappiste`; unique yeast strains cultivated and preserved monasteric tradition, natural
+6. Expression - `Craft`; commercially available yeast strains, spices, even chocolate
+> Collectively, economic growth is the solution to everything
+### A Priori:: Masculine/Autonomous
+##### (Extensions/Cast: 11th, 13th)
+3. Diatonic/Mundane - `Lager`; bottom, cold fermenetation
+4. Chromatic - `Ale`; top, war, fermentation
+> Individually, buying a service or good is the thing
+### Likelihood:: Power/Shortodds
+##### (Foundation/Stage: 1st, 3rd, 5th, ♭♭7, 9th)
+1. Root/Ecclessiastical - `Reinheitsgebot`; the Bavarian Purity Law of 1516
+2. Pentatonic - `Hefeweizen`; water, malt, hops
+>  Thus spake Yuval Noah tongue-fully-in-cheek
+
+ 
