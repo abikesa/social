@@ -1,4 +1,6 @@
-
+- Capitalism
+- [Myth-making](https://www.youtube.com/watch?v=TYAKHLrr51w) (A Guy Vibe!)
+- Religion
 
 
 <p align="center">
